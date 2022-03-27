@@ -5,6 +5,9 @@ Creative Technologist <br>
 Interaction Designer <br>
 New Media Art / Interactive Art <br>
 
+LinkedIn : https://www.linkedin.com/in/sohamdasdesigns/
+Instagram : https://www.instagram.com/soham.das_/
+
 ---------------------------------------------------------------
 
 Bachelor of Eletrical Engineering , JU, Kolkata, India <br>
