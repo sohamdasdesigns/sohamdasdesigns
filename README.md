@@ -1,9 +1,9 @@
 
-Soham Das
+Soham Das <br>
 
-Creative Technologist
-Interaction Designer
-New Media Art / Interactive Art
+Creative Technologist <br>
+Interaction Designer <br>
+New Media Art / Interactive Art <br>
 
 ---------------------------------------------------------------
 
