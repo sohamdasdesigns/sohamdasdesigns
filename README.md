@@ -5,7 +5,7 @@ Creative Technologist <br>
 Interaction Designer <br>
 New Media Art / Interactive Art <br>
 
-LinkedIn : https://www.linkedin.com/in/sohamdasdesigns/
+LinkedIn : https://www.linkedin.com/in/sohamdasdesigns/ <br>
 Instagram : https://www.instagram.com/soham.das_/
 
 ---------------------------------------------------------------
