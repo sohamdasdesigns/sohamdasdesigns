@@ -5,6 +5,7 @@ Creative Technologist <br>
 Interaction Designer <br>
 New Media Art / Interactive Art <br>
 
+Gmail : sohamdasdesigns@gmail.com <br>
 LinkedIn : https://www.linkedin.com/in/sohamdasdesigns/ <br>
 Instagram : https://www.instagram.com/soham.das_/
 
