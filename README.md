@@ -14,6 +14,7 @@ Instagram : https://www.instagram.com/soham.das_/
 Science Major, CHS & Fine Arts (Painting) Diploma, BSP, West Bengal, India <br>
 Bachelor of Eletrical Engineering , JU, Kolkata, India <br>
 Cloud Appication Developer, IBM, Bangalore, India <br>
+Visual Artist, Yoaatma, Bangalore, India <br>
 Master of Interaction Design, DA, Milano, Italy <br>
 Creative Technologist, Studio Riccardo Mantelli, Aosta, Italy <br>
 
