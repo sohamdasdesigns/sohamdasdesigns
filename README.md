@@ -15,7 +15,7 @@ Science Major, CHS & Fine Arts (Painting) Diploma, BSP, West Bengal, India | 201
 Bachelor of Eletrical Engineering , JU, Kolkata, India | 2015 <br>
 Cloud Appication Developer, IBM, Bangalore, India | 2019 <br>
 Visual Artist, Yoaatma, Bangalore, India | 2021 <br>
-Master of Interaction Design, DA, Milano, Italy | 2022 <br>
+Master of Interaction Design, DA, Milan, Italy | 2022 <br>
 Creative Technologist, Studio Riccardo Mantelli, Aosta/Milan, Italy | 2022 <br>
 
 --------------------------------------------------------------
