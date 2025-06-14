@@ -1,9 +1,9 @@
 
 Soham Das <br>
 
+New Media Design / Interactive Art <br>
 Creative Technologist <br>
 Interaction Designer <br>
-New Media Art / Interactive Art <br>
 
 Gmail : sohamdasdesigns@gmail.com <br>
 LinkedIn : https://www.linkedin.com/in/sohamdasdesigns/ <br>
@@ -15,7 +15,8 @@ Science Major, CHS & Fine Arts (Painting) Diploma, BSP, West Bengal, India | 201
 Bachelor of Eletrical Engineering , JU, Kolkata, India | 2015 <br>
 Cloud Appication Developer, IBM, Bangalore, India | 2019 <br>
 Visual Artist, Yoaatma, Bangalore, India | 2021 <br>
-Master of Interaction Design, DA, Milan, Italy | 2022 <br>
+Master of Interaction Design, Domus Academy, Milan, Italy | 2022 <br>
 Creative Technologist, Studio Riccardo Mantelli, Aosta/Milan, Italy | 2022 <br>
+Masters in New Media Design, National Institute of Design, Gandhinagar Campus, India | 2024 <br>
 
 --------------------------------------------------------------
