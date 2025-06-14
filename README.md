@@ -17,6 +17,6 @@ Cloud Appication Developer, IBM, Bangalore, India | 2019 <br>
 Visual Artist, Yoaatma, Bangalore, India | 2021 <br>
 Master of Interaction Design, Domus Academy, Milan, Italy | 2022 <br>
 Creative Technologist, Studio Riccardo Mantelli, Aosta/Milan, Italy | 2022 <br>
-Masters in New Media Design, National Institute of Design, Gandhinagar Campus, India | 2024 <br>
+Master of New Media Design, National Institute of Design, Gandhinagar Campus, India | 2024 <br>
 
 --------------------------------------------------------------
